@@ -1,0 +1,7 @@
+# python-class
+
+
+MY NAME IS UZAIR
+
+PYTHON CLASS TIMING  8 TO 10
+
